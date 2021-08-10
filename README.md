@@ -9,6 +9,7 @@ Ans: My main career goal is to learn every day. I really want to learn and to pr
 Selected: NO
 ## 3. If you answered no, please help us understand why.
 Ans: I don’t have enough money to invest in my education, I can invest only my time now.
+ I don’t have enough money to invest in my education, I can invest only my time now. Also due to pandemic my freelancing job is also affected, so their is very less opportunities to earn money as a college student. And after college this course will help me to get a stable job. That's why I want to do this whole certification course.
 Have some patience, to get this course.
 It takes 15 days hardly…
 You can check my video,https://youtu.be/6MPLhlxR3L4 To get a hands-on demo for how to get this financial aid approved in 15days. Thanks for supporting guys,
